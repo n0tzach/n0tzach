@@ -8,7 +8,7 @@
 -     The University of North Florida
 - I expect to graduate in...
 -     Spring 2027
-- -=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=--=
+======================================================================
 - Other than computers and my career,
 -   I am heavily dedicated to...
 -     Music, being outside, and being kind.
